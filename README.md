@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Alexia aka @VAIANA
+- 👀 I’m interested in sports in global : french boxing 3rd rank on france championchip 2017, dancer at the Avignon's conservatory in contanporain, jazz and classical during 4 years.
+- 🌱 I’m currently learning informatics and numerics, i want to create my own buisness associating sport and electronic/robotic/design.
+- 💞️ I’m looking to collaborate with my <3 : @VILKA.
+- 📫 How to reach me : alexia30260@gmail.com
